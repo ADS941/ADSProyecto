@@ -28,7 +28,7 @@
 
       SANTOS DE CARRANZA, EVELING JANETH            SP130097
 
-      SORTO GUZMÁN, MARILYN IVETTE                  SG211663
+      
             
       
                      FECHA DE ENTREGA:
